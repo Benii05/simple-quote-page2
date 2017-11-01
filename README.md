@@ -1,4 +1,5 @@
-# simple-quote-page2
-# simple-quote-page2
-Copyright secure! Official Benii05 program!
-Thanks!
+You can download the code file :)
+but....
+Copyright© Secure!
+so
+GLHF
